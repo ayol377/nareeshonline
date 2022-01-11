@@ -1,1 +1,1 @@
-# Bing Chilling?
+# ![mqdefault.png](https://cdn.discordapp.com/attachments/689141061209161745/930472190460178452/mqdefault.png)
